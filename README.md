@@ -1,2 +1,2 @@
 # khubaib-repo
-this is a website made by khubaib the student of bscs student of superior univerisity thanks 
+this is a website made by khubaib the student of bscs student of superior univerisity thanks you sir 
